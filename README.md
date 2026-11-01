@@ -1,0 +1,2 @@
+download the .py and run it just as we said on previous posts...it will produce a 800mb .html with different operations than the previous 2 filed estimated execution time 20min 2,4Gb in a day...a human needs almost 3lives to complete this 
+task..for me a so_rce of inpir_tion is Cormac McCarthy in Stella Maris he explains simply poetically big ideas big math and existencial ideas...so he neitjer lies nor says truth..he perceives objective reallity as it can be..enjoy!
